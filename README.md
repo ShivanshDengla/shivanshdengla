@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **shivanshdengla@gmail.com**
 
-- ⚡ Favourite Book Quote : **It's our Choices which makes us who we are, far more than our abilities.**
+- ⚡ Favourite Book Quote : **It's Our Choices which makes us who we are, far more than our abilities.**
 
 [![@shivanshdengla's Holopin board](https://holopin.me/shivanshdengla)](https://holopin.io/@shivanshdengla)
 
