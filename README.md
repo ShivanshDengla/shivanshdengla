@@ -3,7 +3,7 @@
 
 - 🌱 I’m currently learning **React**
 
-- 👨‍💻 All of my projects are available at [denglatech.co.in](denglatech.co.in)
+- 👨‍💻 All of my projects are available at [shivanshdengla.gtihub.io](https://shivanshdengla.github.io/)
 
 - 📫 How to reach me **shivanshdengla@gmail.com**
 
